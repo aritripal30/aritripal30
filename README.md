@@ -1,3 +1,2 @@
 - 👋 Hello, This is Aritri Pal.
-- 👀 A mixture of choreophile & martial artist.
 - 🌱 Currently persuing Bachelor of Computer Appication from Meghnad Saha Institute of Technology, Kolkata. 
